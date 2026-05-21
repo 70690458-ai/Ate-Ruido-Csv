@@ -1,1 +1,0 @@
-# Ate-Ruido-Csv
